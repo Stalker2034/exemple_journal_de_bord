@@ -5,16 +5,25 @@
 Parlez de vous. 
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+
+Conception de design
+
+Animation
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
 
-### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+SCÉNARISTE EN CHEF CHEZ UBISOFT À MONTRÉAL
+
+DIRECTEUR DE CRÉATION 
+
+### Identification 
+
+11 BIT STUDIOS
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+
+JE SERAI PROBABLEMENT FRAÎCHEMENT SORTI DE L'ÉCOLE À LA RECHERCHE D'UN EMPLOI
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+
+Un film d'animation
